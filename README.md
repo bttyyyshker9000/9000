@@ -1,7 +1,2 @@
-![image](https://i.pinimg.com/736x/e6/3f/9e/e63f9e1c8ee6a849f1ce598145b028b4.jpg) 
-
-_ ⋆. 𐙚 ˚  🐭🌕 / 🍋😈 / 🔳🔲 / 🌈🌴
-# |︴✦ Kazper ✦ Alex ✦ Bday : Oct / 20 ✦ 
-# ✄┈┈┈┈┈┈┈┈┈
-
-# |︴Check strawpage out!! (kinda ugly but oh well!!) 
+![image](https://i.pinimg.com/736x/21/75/49/217549aa60831a4d6fdb9a1f14f29355.jpg)
+#       chek mah socialz pleaz 🥺🥺🥺
